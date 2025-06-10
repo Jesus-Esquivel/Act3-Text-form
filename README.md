@@ -6,6 +6,9 @@
 
 ![image](https://github.com/user-attachments/assets/5e9d39fe-c405-4fd2-b2a0-e5ce6b94b0a4)
 
+![Tabla](https://github.com/user-attachments/assets/fb498993-9f17-499f-939d-e2ca15ddf60c)
+
+
 
 
 ## Getting Started
